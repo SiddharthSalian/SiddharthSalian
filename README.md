@@ -1,1 +1,1 @@
-Hi I'm Sid 👋, I love all things data 🦦
+Hi! I'm Sid 👋, and I love all things data 🦦
